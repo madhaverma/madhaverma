@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **madhavverma074@gmail.com**
 
-- 📄 Know](https://drive.google.com/file/d/1bArI1jhk6m-3EuqHgEMPK1k8WeEI_llm/view?usp=drivesdk)
+- 📄Pinned my resume on my profile! Feel free to check it out 👇
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
