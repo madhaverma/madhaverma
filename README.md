@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **madhavverma074@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bArI1jhk6m-3EuqHgEMPK1k8WeEI_llm/view?usp=drivesdk](https://drive.google.com/file/d/1bArI1jhk6m-3EuqHgEMPK1k8WeEI_llm/view?usp=drivesdk)
+- 📄 Know](https://drive.google.com/file/d/1bArI1jhk6m-3EuqHgEMPK1k8WeEI_llm/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
